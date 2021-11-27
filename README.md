@@ -28,7 +28,7 @@ learn and explore, and give the best to the Company.
 
 
 
-# Technical Skills
+# Skills and courses 
 
 
 </p>
